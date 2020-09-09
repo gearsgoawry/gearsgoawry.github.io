@@ -1,1 +1,0 @@
-# gearsgoawry.github.io
